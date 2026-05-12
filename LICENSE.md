@@ -1,4 +1,4 @@
-#  
+#  advanced Scripts for escape waves for lucky blocks is the best escape waves for lucky blocks Script, featuring auto-sell and private server access.
 
 
 
